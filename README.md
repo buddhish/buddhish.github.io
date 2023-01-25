@@ -1,1 +1,1 @@
-# buddhish.github.io
+# buddhish
